@@ -10,17 +10,17 @@ Structured Summary (February 2026)
 
 1. Background
 
-  In 2017, the Ontario Municipal Board approved a subdivision plan at 27–35 Scissons Road for:
-  
-  15 single-family detached homes
-  
-  Private street (Crocodile Private)
-  
-  Tree retention block along the southerly lot line
-  
-  Built form consistent with surrounding two-storey homes
-  
-  Public consultation occurred in 2015–2016.
+      In 2017, the Ontario Municipal Board approved a subdivision plan at 27–35 Scissons Road for:
+      
+      15 single-family detached homes
+      
+      Private street (Crocodile Private)
+      
+      Tree retention block along the southerly lot line
+      
+      Built form consistent with surrounding two-storey homes
+      
+      Public consultation occurred in 2015–2016.
 
 2. Current Proposal (February 10, 2026 Notification Letter)
 
